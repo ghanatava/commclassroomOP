@@ -5,4 +5,4 @@
 - I love MLH
 - More power to kunal. love the work which your are doing for the community.
 - Anirudh Sharma finds the Community Classroom initiative really great!
-- Ghanatava Thakaran appreciates all the work Kunal is oing for the community and is grateful for that!
+- Ghanatava Thakaran appreciates all the work Kunal is doing for the community and is grateful for that!
